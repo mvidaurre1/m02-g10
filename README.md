@@ -3,4 +3,4 @@
 Maria Vidaurre
 Isidora Vergara
 Amanda Gajardo
-
+Agustina Phillips
